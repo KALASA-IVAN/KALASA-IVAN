@@ -4,6 +4,6 @@
 - Engaging and Trading Synthetic indices
 - 😁Fun fact: I chill more than you party!
 - 📧Email: moikalasa12@gmail.com
-<br/>
-<br />
+
+
 ## Forex trader📉📉📈
