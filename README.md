@@ -5,5 +5,3 @@
 - 😁Fun fact: I chill more than you party!
 - 📧Email: moikalasa12@gmail.com
 
-
-## Day trader📉📉📈
