@@ -1,5 +1,5 @@
-## Hi there, I am Ivan, a dev!! .
+## Hi there, I am a dev!! .
 - 🌱 I’m currently learning  and trying everything 🤣
-- Renaissance(fortification of oneself)
+- Renaissance
 - 📧Email: moikalasa12@gmail.com
 
